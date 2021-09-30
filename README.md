@@ -1,1 +1,1 @@
-<img width="569" alt="스크린샷 2021-09-30 오후 4 39 17" src="https://user-images.githubusercontent.com/74946505/135410672-f763927f-7c68-4ced-acaf-126926481b52.png">
+<img width="818" alt="스크린샷 2021-08-11 오후 10 17 07" src="https://user-images.githubusercontent.com/74946505/135410787-ee00c99d-758c-4ec9-99f0-12618fe66bc0.png">
